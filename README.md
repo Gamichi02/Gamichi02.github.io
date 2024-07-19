@@ -1,0 +1,1 @@
+# Gamichi02.github.io
